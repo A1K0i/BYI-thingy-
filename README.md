@@ -1,6 +1,6 @@
 ִ ࣪ ˖ ࣪ ᨰꫀᥣᥴ᥆ꩇꫀ ! ᰔ ִ ׄ
 # BYI-thingy-୭ ᵎᵎ 🧁![9c52f71cc359a86f871bab6b5df82173](https://github.com/user-attachments/assets/b5db7c5a-04cf-40e6-86c6-0944380e51b2) 
-![ffeaf176f4281efaa63845b20849e7f8](https://github.com/user-attachments/assets/94f0b6e6-476a-449e-9c4a-f27ab67a7dc3)
+![ffeaf176f4281efaa63845b20849e7f8]
 
 
 ──★ ˙🍓 ̟ !!︶⊹︶︶𝘉𝘠𝘐︶︶⊹  ⋅˚₊‧ ୨୧ ‧₊˚ ⋅
