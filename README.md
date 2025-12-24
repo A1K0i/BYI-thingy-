@@ -2,14 +2,18 @@
 # BYI-thingy-୭ ᵎᵎ 🧁![9c52f71cc359a86f871bab6b5df82173](https://github.com/user-attachments/assets/b5db7c5a-04cf-40e6-86c6-0944380e51b2) 
 WILL BYERS S1 STANS GET MY BEHINED ME !!!(˶˃ ᵕ ˂˶)
 
+ships> byler jopper mileleven more byler tho lumax henderhop elmax byclair robin x nancy  vickie x robin stonahan  bywheelclair! ik ...
 
 ──★ ˙🎀🦴🍮🎒 ̟ !!︶⊹︶︶𝘉𝘠𝘐︶︶⊹  ⋅˚₊‧ ୨୧ ‧₊˚ ⋅
-𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚙𝚎𝚊𝚔 𝚖𝚞𝚌𝚑 𝚊𝚗𝚍 𝚐𝚎𝚝 𝚚𝚞𝚒𝚝𝚎 𝚊𝚗𝚒𝚡𝚘𝚞𝚜! 𝚜𝚘 𝚙𝚕𝚎𝚊𝚜𝚎 𝚒𝚗𝚝 𝚏𝚒𝚛𝚜𝚝!ꨄ︎
-I would totally appreciate ૮₍ ´ ꒳ `₎ა
+𝙸 𝚍𝚘𝚗'𝚝 𝚜𝚙𝚎𝚊𝚔 𝚖𝚞𝚌𝚑 𝚊𝚗𝚍 𝚐𝚎𝚝 𝚚𝚞𝚒𝚝𝚎 𝚊𝚗𝚒𝚡𝚘𝚞𝚜! 𝚜𝚘 𝚙𝚕𝚎𝚊𝚜𝚎 𝚒𝚗𝚝 𝚏𝚒𝚛𝚜𝚝!ꨄ︎ 
+
+I would totally appreciate if you int with me first ૮₍ ´ ꒳ `₎ა
+
 
 𝘺𝘶𝘮𝘦𝘴𝘩𝘪𝘱𝘱𝘦𝘳&𝘮𝘶𝘵𝘭𝘪𝘴𝘩𝘪𝘱𝘱𝘦𝘳!!
+𝘸𝘪𝘭𝘭/𝘮𝘪𝘬𝘦/𝘹/𝘵𝘦𝘢𝘳𝘥𝘳𝘰𝘱/𝘤𝘰𝘭𝘦/𝘵𝘴𝘶𝘬𝘢𝘴𝘢\𝘦𝘭\𝘮𝘢𝘹\𝘭𝘶𝘤𝘢𝘴 𝘬𝘪𝘯𝘯𝘪𝘦!𝘤𝘶𝘳𝘳𝘦𝘯𝘵𝘭𝘺 𝘰𝘣𝘦𝘴𝘴𝘦𝘥 𝘸𝘪𝘵𝘩 𝘴𝘵𝘳𝘢𝘯𝘨𝘦𝘳 𝘵𝘩𝘪𝘯𝘨𝘴 𝘢𝘯𝘥 𝘰𝘯𝘦 𝘸𝘩𝘦𝘢𝘵 𝘮𝘢𝘳𝘬 ꉂ(˵˃ ᗜ ˂˵)
+kins  ! ̟ ࣪ ऻ𝘵𝘵𝘤/𝘩𝘦𝘳𝘴/𝘩𝘰𝘵𝘧𝘳𝘦𝘢𝘬𝘴/𝘪 𝘭𝘰𝘷𝘦 𝘢𝘤𝘵𝘪𝘯𝘨/ 𝘸𝘳𝘪𝘵𝘪𝘯𝘨/𝘥𝘳𝘢𝘸𝘪𝘯𝘨/𝘢𝘳𝘵𝘴 𝘤𝘳𝘢𝘧𝘵𝘴 (𝘏𝘜𝘎𝘌 𝘴𝘸𝘪𝘧𝘪𝘵𝘦!🧡 𝘖𝘙𝘉𝘐𝘛 𝘨𝘪𝘭𝘭𝘵 𝘣𝘶𝘯𝘯𝘺🧁 ETC!
 
-if you int with me first.. ! ̟ ࣪ ऻ
 ︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵
 DNI
 ୨ৎ ˙proshippers darkshippers problematic people or shippers! age players etc..
