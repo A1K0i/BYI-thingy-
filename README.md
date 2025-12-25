@@ -1,5 +1,6 @@
-ִ ࣪ ˖ ࣪ ᨰꫀᥣᥴ᥆ꩇꫀ ! ᰔ ִ ׄ
-# BYI-thingy-୭ ᵎᵎ 🧁![9c52f71cc359a86f871bab6b5df82173](https://github.com/user-attachments/assets/b5db7c5a-04cf-40e6-86c6-0944380e51b2) 
+ִ ࣪ ˖ ࣪ ᨰꫀᥣᥴ᥆ꩇꫀ ! ᰔ ִ![bb741e9d61787e98e63e1febceb9b704](https://github.com/user-attachments/assets/927872e4-7bb1-4339-aa1a-21d82ec59771)
+ ׄ
+# BYI-thingy-୭ ᵎᵎ 🧁!
 WILL BYERS S1 STANS GET MY BEHINED ME !!!(˶˃ ᵕ ˂˶)
 
 ships> byler jopper mileleven more byler tho lumax henderhop elmax byclair robin x nancy  vickie x robin stonahan  bywheelclair! ik ...
